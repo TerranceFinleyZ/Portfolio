@@ -1,4 +1,4 @@
-# Portfolio
+resume
 https://www.linkedin.com/in/terrance-finley/
 
 
